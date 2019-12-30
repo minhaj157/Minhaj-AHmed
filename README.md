@@ -1,2 +1,2 @@
-# Minhaj-AHmed
+# Minhaj-Ahmed
 Graphic Designer/Artist
